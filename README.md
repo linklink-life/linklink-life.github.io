@@ -1,0 +1,1 @@
+# linklink-life.github.io
